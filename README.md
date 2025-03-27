@@ -1,0 +1,4 @@
+- 16
+- high school stud in Hungary (GMT+1)
+- built different 🗿
+- me suck roket lague
