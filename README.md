@@ -1,4 +1,5 @@
-- 16
+- 17M
 - high school stud in Hungary (GMT+1)
 - built different 🗿
 - me suck roket lague
+- i slave ChatGPT to do little projects for my dirty needs
